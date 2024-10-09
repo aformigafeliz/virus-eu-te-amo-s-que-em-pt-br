@@ -1,0 +1,1 @@
+por favor, se você querer instalar o eu te amo, por favor teste em uma maquina virtual ou em um computador antigo que você não usa mais, se você quiser testar no seu dispositivo principal, tome cuidado.
